@@ -103,7 +103,7 @@ Sabiendo que la ubicación de este ejido es rica en recursos agrícolas, por lo 
 
 
 
-![PalabrasdelTextoalternativo](https://github.com/Mario91210/Pendientes-del-Ejido-La-Espera-_-ordinario/upload)
+![PalabrasdelTextoalternativo](https://github.com/Mario91210/Pendientes-del-Ejido-La-Espera-_-ordinario/blob/master/Imagenes/poster%20ordi.png)
 
 
 
